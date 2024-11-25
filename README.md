@@ -69,6 +69,6 @@ Did you know? Elle’s iconic “bend and snap” move has become a pop culture 
 
 ---
 
-🪄 ==Watch the trailer here: ==
+🪄 ==Watch the trailer here:== 
 
 [Legally Blonde (2001) | Official Trailer | MGM Studios](https://youtu.be/vWOHwI_FgAo?si=FVHJKNW5bPnD72mi)
